@@ -1,2 +1,2 @@
 # Dying_Earth
-It's a Just another rep you me in github.
+It's a Just another rep for and you me on github.
